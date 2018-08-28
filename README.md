@@ -1,4 +1,4 @@
 # AULA1-HTML :raised_hand:
 
-###### NO GOOD PLS NO :shit:
+###### NO GOD PLS NO :shit:
 
