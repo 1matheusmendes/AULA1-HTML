@@ -1,6 +1,4 @@
-# AULA1-HTML
+# AULA1-HTML :raised_hand:
 
-###### NO GOOD PLS NO :raised_hand:
+###### NO GOOD PLS NO :shit:
 
-
-# :shit: :shit: :shit: :shit: :shit: :shit: :shit:
